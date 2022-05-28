@@ -1,1 +1,1 @@
-
+look forward to learning about the c environment. The set up is certainly not easy at all. Sometimes if a person has to be something and come back, then have to start all over or else not sure how to start in the middle of the set up process.
